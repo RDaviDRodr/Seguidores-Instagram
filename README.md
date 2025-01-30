@@ -24,8 +24,8 @@ GrowBot Modificado! Com acesso premium e completo, você terá atualizações co
 - **Acesso Premium Completo**: Desfrute de todas as funcionalidades sem limitações.
 - **Atualizações Contínuas**: Receba todas as novidades e melhorias.
 
-## 📷 Seção de Fotos
-![Image](https://github.com/user-attachments/assets/631656a0-39e6-4133-b953-f2be2df087ee)
-![Image](https://github.com/user-attachments/assets/82ae175d-d38f-4287-86ff-a04fd6cb3cfb)
-![Image](https://github.com/user-attachments/assets/62130b40-c7f6-472d-a22b-aca3573fe7bc)
+## 📷 
+
+[Assista ao vídeo](https://github.com/user-attachments/assets/aa49ac9c-6d16-4c64-a735-0f453ca57d15)
+
 ---
