@@ -3,11 +3,11 @@
 
 GrowBot Modificado! Com acesso premium e completo, você terá atualizações contínuas.
 
-## 📱 MEU TELEGRAM
-<a href="https://t.me/InstaGrowPremium_bot"><img src="https://img.shields.io/badge/Telegram-2CA5E0?style=for-the-badge&logo=telegram&logoColor=white" /></a>
+## 📱 TELEGRAM GRUPO
+<a href="https://t.me/growbotpremiumm"><img src="https://img.shields.io/badge/Telegram-2CA5E0?style=for-the-badge&logo=telegram&logoColor=white" /></a>
 
-## 📱 CONTACT ME 
-<a href="https://t.me/GrowBot_PremiumDol_bot"><img src="https://img.shields.io/badge/Telegram-2CA5E0?style=for-the-badge&logo=telegram&logoColor=white" /></a>
+## 📱 TELEGRAM GROUP
+<a href="https://t.me/growbotpremiumm"><img src="https://img.shields.io/badge/Telegram-2CA5E0?style=for-the-badge&logo=telegram&logoColor=white" /></a>
 
 ## 🚀 Características:
 ### Español
