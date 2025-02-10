@@ -4,7 +4,7 @@
 GrowBot Modificado! Com acesso premium e completo, você terá atualizações contínuas.
 
 ## 📱 TELEGRAM GROUP
-<a href="https://t.me/addlist/_MDe3SJsM_owZmFh"><img src="https://img.shields.io/badge/Telegram-2CA5E0?style=for-the-badge&logo=telegram&logoColor=white" /></a>
+<a href="https://t.me/+gFf-gruHQe82Mjlh"><img src="https://img.shields.io/badge/Telegram-2CA5E0?style=for-the-badge&logo=telegram&logoColor=white" /></a>
 
 ## 🚀 Características:
 ### Español
@@ -26,4 +26,4 @@ GrowBot Modificado! Com acesso premium e completo, você terá atualizações co
 ## 📝 SEO
 - **Palavras-chave**: automation, Instagram, bot, premium access, continuous updates, seguidores, followers
 - **Tags**: #GrowBot #InstagramAutomation #PremiumAccess #GrowBotCracked #Extension #followers #seguidores
-  
+- 
