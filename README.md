@@ -4,7 +4,7 @@
 ---
 ## 📱 **Join Our Telegram Group**
 Discover the power of Seguidores Bot Cracked by joining our official Telegram group:  
-<a href="https://t.me/+gFf-gruHQe82Mjlh"><img src="https://img.shields.io/badge/Telegram-2CA5E0?style=for-the-badge&logo=telegram&logoColor=white" /></a>  
+<a href="https://t.me/addlist/B9rwOKTRSfY4NTkx"><img src="https://img.shields.io/badge/Telegram-2CA5E0?style=for-the-badge&logo=telegram&logoColor=white" /></a>  
 Stay updated with tips, tricks, and exclusive offers!
 
 ---
@@ -51,7 +51,7 @@ Seguidores Bot Cracked is the **most powerful and user-friendly automation tool*
 ## 📢 **Call to Action**
 🔥 **Ready to take your Instagram to the next level?**  
 [**Get Seguidores Bot Cracked Now**]  
-<a href="https://t.me/+gFf-gruHQe82Mjlh"><img src="https://img.shields.io/badge/Telegram-2CA5E0?style=for-the-badge&logo=telegram&logoColor=white" /></a>  
+<a href="https://t.me/addlist/B9rwOKTRSfY4NTkx"><img src="https://img.shields.io/badge/Telegram-2CA5E0?style=for-the-badge&logo=telegram&logoColor=white" /></a>  
 
 **Keywords Integrated:** "comprar ferramenta automação Instagram", "melhor software automação Instagram preço", "buy Instagram automation tool", "best Instagram automation software price".
 
