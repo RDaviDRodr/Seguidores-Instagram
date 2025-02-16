@@ -63,12 +63,11 @@ This **powerful Instagram automation tool** is engineered to grow your followers
 ---
 
 ## 🤝 **Contribute & Stay Updated**  
-We’re open-source! Improve the bot or suggest features via [GitHub issues](link).  
 
 **P.S. Want 1,000 free followers?** [Join our Telegram](https://t.me/addlist/B9rwOKTRSfY4NTkx) now for secret growth hacks! 🚀  
 
 ---  
 
-**Keywords Master List**: Instagram growth, gain followers fast, Instagram automation tool, how to get Instagram followers, auto follow Instagram, aumentar seguidores, crescer Instagram, ferramenta para seguidores, bot para Instagram, ferramenta de automação Instagram, GrowBot, Growbot Cracked, GrowBot Crackeado, GrowBot Premium.  
+**Keywords Master List**: Instagram growth, gain followers fast, Instagram automation tool, GrowBot Crackeado, how to get Instagram followers, auto follow Instagram, aumentar seguidores, Growbot Cracked, crescer Instagram, ferramenta para seguidores, bot para Instagram, ferramenta de automação Instagram, GrowBot, GrowBot Premium.  
 
 *Boost your Instagram today or watch competitors steal your audience!* 💥
