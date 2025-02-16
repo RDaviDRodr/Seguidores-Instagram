@@ -24,7 +24,7 @@ This **powerful Instagram automation tool** is engineered to grow your followers
 ✅ **Dominate Your Niche** using advanced filters for hashtags, locations, and competitor audiences.  
 ✅ **Save 10+ Hours Weekly** – let the bot work while you focus on content!  
 
-**SEO Keywords:** *Instagram growth tool, gain Instagram followers, Instagram automation, increase followers fast, Instagram bot, grow Instagram account, get real followers, Instagram followers tool, automation para Instagram, ganhar seguidores, conseguir seguidores, ferramenta crescimento Instagram.*  
+**SEO Keywords:** *Instagram growth tool, gain Instagram followers, Instagram automation, increase followers fast, Instagram bot, grow Instagram account, get real followers, Instagram followers tool, GrowBot, Growbot Cracked, GrowBot Crackeado, GrowBot Premium, automation para Instagram, ganhar seguidores, conseguir seguidores, ferramenta crescimento Instagram.*  
 
 ---
 
@@ -69,6 +69,6 @@ We’re open-source! Improve the bot or suggest features via [GitHub issues](lin
 
 ---  
 
-**Keywords Master List**: Instagram growth, gain followers fast, Instagram automation tool, how to get Instagram followers, auto follow Instagram, aumentar seguidores, crescer Instagram, ferramenta para seguidores, bot para Instagram, ferramenta de automação Instagram.  
+**Keywords Master List**: Instagram growth, gain followers fast, Instagram automation tool, how to get Instagram followers, auto follow Instagram, aumentar seguidores, crescer Instagram, ferramenta para seguidores, bot para Instagram, ferramenta de automação Instagram, GrowBot, Growbot Cracked, GrowBot Crackeado, GrowBot Premium.  
 
 *Boost your Instagram today or watch competitors steal your audience!* 💥
