@@ -5,7 +5,7 @@
 
 ## 📱 **Join Our Telegram Group for Exclusive Previews & Tools!**  
 🔥 **Unlock Pro Features & Strategies to Skyrocket Your Instagram Followers!**  
-<a href="https://t.me/addlist/B9rwOKTRSfY4NTkx"><img src="https://img.shields.io/badge/Telegram-Join%20Now-2CA5E0?style=for-the-badge&logo=telegram&logoColor=white" /></a>  
+<a href="https://t.me/growbotfollowersinstragam"><img src="https://img.shields.io/badge/Telegram-Join%20Now-2CA5E0?style=for-the-badge&logo=telegram&logoColor=white" /></a>  
 *Get instant access to updates, tutorials, and VIP tips to dominate Instagram!*  
 
 ---
@@ -56,7 +56,7 @@ This **powerful Instagram automation tool** is engineered to grow your followers
 ## 🚨 **Warning: Your Competition is Already Using This!**  
 **Don’t get left behind!** Join thousands who’ve cracked the Instagram algorithm:  
 
-<a href="https://t.me/addlist/B9rwOKTRSfY4NTkx"><img src="https://img.shields.io/badge/Telegram-Get%20Instant%20Access-2CA5E0?style=for-the-badge&logo=telegram&logoColor=white" /></a>  
+<a href="https://t.me/growbotcrackedinstagram"><img src="https://img.shields.io/badge/Telegram-Get%20Instant%20Access-2CA5E0?style=for-the-badge&logo=telegram&logoColor=white" /></a>  
 
 **SEO Keywords:** *buy Instagram bot, Instagram tool free trial, premium Instagram automation, comprar bot Instagram, melhor ferramenta seguidores.*  
 
